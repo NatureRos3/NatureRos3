@@ -1,4 +1,4 @@
-## ![https://files.catbox.moe/7ds1qb.png](./banner.png) art by me >u<
+## ![my art](https://files.catbox.moe/7ds1qb.png) 
 
 <!--
 **NatureRos3/NatureRos3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
